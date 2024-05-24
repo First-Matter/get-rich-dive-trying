@@ -1,1 +1,0 @@
-# get-rich-dive-trying
